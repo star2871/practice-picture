@@ -1,0 +1,1 @@
+![99CFBB3A5C24EAF933](picture-practice.assets/99CFBB3A5C24EAF933.gif)
